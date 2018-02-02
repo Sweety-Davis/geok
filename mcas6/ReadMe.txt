@@ -1,0 +1,6 @@
+Name       :  SWEETY DAVIS
+ADDRESS    :  CHUNKAN(H)
+	      VELUPADAM P O
+              THRISSUR
+PIN        :  680303
+PHONE NO   :  9605944798
